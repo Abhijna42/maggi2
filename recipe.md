@@ -1,0 +1,1 @@
+First boil the water.Then add the maggi.Wait for 2 minutes.Put the masala.Enjoy your delicious Maggi.
